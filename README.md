@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @ravenaemutano
-- 👀 I’m interested in  ser  perita criminal- 💞️ I’m looking to collaborate  nos meus estudos 
--
-- 📫 How o reach me  mariane.andrade.gomes @escola.pr.gov.br
+- 👀 meu gmail de contato e mariane.andrade.gomes@escola.pr.gov.br
+- 💞️esou interessado em ser perita criminal 
+-estoou n=aprendendo a programar recentimente em linguagens de java script e scratch
+- ch
